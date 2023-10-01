@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @holkarparth
-  Minimal product description writing 
-- 📫 How to reach me - email; holkarparth@gmail.com , Instagram -@parth.holkar 
+  Product description Writer 
 
 Are you in search of a seasoned wordsmith who can breathe life into your product descriptions and distill complex ideas into concise, impactful copy? Look no further!
 
